@@ -49,6 +49,7 @@ If conflict arises:
 By signing below, we acknowledge that we have read, discussed, and agreed to these terms. We understand that this contract is binding for the duration of the course and may be revised with the agreement of all team members.
 
 Team Member Signatures:
+Judy F.
 
 Date: 
 
